@@ -2,5 +2,9 @@
 NO GEAR PIECE WAH any art preview                                                                                                                                                       <img width="2852" height="2000" alt="Untitled45_20250825234135" src="https://github.com/user-attachments/assets/15215c8a-e4b3-484f-8fa3-19c234435cbe" />
 
 if you admit your proshipper or any of that  just leave my page
-https://github.com/user-attachments/assets/3f6e25a8-4755-4464-9c11-82c1e7712519
+
+
+https://github.com/user-attachments/assets/85892aa2-1324-4a23-b874-fccf81095dcf
+
+
 
