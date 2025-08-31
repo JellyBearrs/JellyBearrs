@@ -2,8 +2,12 @@
 NO GEAR PIECE WA
 if you admit your proshipper or any of that  just leave my page
 
+i dont mind if you want to match up ponies to be like twins or something like that just ask first!
 
-https://github.com/user-attachments/assets/85892aa2-1324-4a23-b874-fccf81095dcf
+
+https://github.com/user-attachments/assets/c62d8646-c864-44ce-a00b-f81910bca9d1
+
+
 
 
 
