@@ -1,1 +1,2 @@
-Heres my art preview  I dont do comms!:<img width="2852" height="2000" alt="Untitled45_20250825234135" src="https://github.com/user-attachments/assets/48536389-8684-446d-8b24-39bb76d8adee" />
+<img width="3741" height="3926" alt="Untitled60_20250921084941" src="https://github.com/user-attachments/assets/a3209e2c-c5fd-4d62-b789-b4c44b7140c0" />
+NO GEAR PIECE WAH                                                                                                                                                      <img width="2852" height="2000" alt="Untitled45_20250825234135" src="https://github.com/user-attachments/assets/15215c8a-e4b3-484f-8fa3-19c234435cbe" />
