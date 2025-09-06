@@ -9,8 +9,3 @@ man im almost finished with this animation
 
 https://github.com/user-attachments/assets/edb549b8-c9fc-429b-9b31-9fa76de6ff3b
 
-<img width="3318" height="2458" alt="Untitled99_20250915202316" src="https://github.com/user-attachments/assets/c1aba8b7-f123-4ee2-a814-584ad95b3600" />
-
-
-
-
