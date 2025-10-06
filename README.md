@@ -3,3 +3,9 @@
 **call me Kirean jelly moki or ignite I draw I have Twitter tumbler(rarely active) TikTok  discord and unvale! I use ibis paint studying how to use alight motion!gandoms im in ghost and pals fpe plants vs zombies just shapes and beats foresaken cookie run kingdom inuyasha and slot of other things**         
 /> 
 # idk what to put as another thing so heres Kennith !<img width="2126" height="1970" alt="Untitled114_20250925152844" src="https://github.com/user-attachments/assets/663f842b-cf60-4ab6-b8a3-c73a4f595676" /> 
+=
+
+
+<img width="483" height="516" alt="Untitled71_20251020071549-removebg-preview (2)" src="https://github.com/user-attachments/assets/f62917e5-8e4f-496a-bae0-d9e788480731" />   />
+# WARNING 
+be hostile to me ill return the favor so dont even start acting like the victim here...2 warn being werid and  FINAL IS IF YOU do something quite offensive or tend to tick me off youre blocked
