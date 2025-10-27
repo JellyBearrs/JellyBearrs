@@ -6,5 +6,5 @@
 =
 
 
-<img width="483" height="516" alt="Untitled71_20251020071549-removebg-preview (2)" src="https://github.com/user-attachments/assets/f62917e5-8e4f-496a-bae0-d9e788480731" />  AY HEL WHAAAA ![bf18009fc2974b3fb5c164e2dd964b36~tplv-jj85edgx6n-image-origin](https://github.com/user-attachments/assets/e67efe6c-08ef-4056-a83a-cd818ea229c0)
+<img width="483" height="516" alt="Untitled71_20251020071549-removebg-preview (2)" src="https://github.com/user-attachments/assets/f62917e5-8e4f-496a-bae0-d9e788480731" /> this is what gonna happen to say if i find them ![d815c899c22c4f5a806e4671a51f8f81~tplv-jj85edgx6n-image-medium](https://github.com/user-attachments/assets/cfcc2814-a915-4d27-ac80-dfb898e96a8d)
 
